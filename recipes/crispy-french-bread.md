@@ -2,11 +2,11 @@
 
 ## ingredients  
 * 3 c warm water
-2 TBS sugar
-2 TBS melted butter
-2 TBS yeast
-1 TBS salt
-7 c bread flour
+* 2 TBS sugar
+* 2 TBS melted butter
+* 2 TBS yeast
+* 1 TBS salt
+* 7 c bread flour
 
 ## steps
 1. Mix water, sugar, melted butter, yeast, and salt.
