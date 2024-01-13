@@ -12,7 +12,7 @@
 * canned tiny shrimp, crab, or both
 * tobasco sauce
 
-*Ruffles wavy chips
+* Ruffles wavy chips
 
 
 ## steps  
