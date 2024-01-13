@@ -6,7 +6,7 @@
 * 2 cans minced Clams  
 * 1 cup onions
 * 1 cup diced celery
-* 2 cups dried potatoes  
+* 2 cups diced potatoes  
 * 3/4 c. butter 
 * 3/4 c. white flour  
 * 1 quart half & half  
@@ -24,4 +24,7 @@
 
 ## based on  
 * Brattens Clam Chowder (Lucy)  
-
+* https://www.food.com/recipe/brattens-famous-clam-chowder-115258
+* https://www.food.com/recipe/brattons-clam-chowder-205163
+* https://www.justapinch.com/recipes/soup/chowder-soup/brattens-famous-clam-chowder.html
+* https://www.bigoven.com/recipe/brattens-clam-chowder/1579783
