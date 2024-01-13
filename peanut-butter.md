@@ -1,30 +1,11 @@
-# Aloo Matar  
+# Peanut Butter Sandwich
 
 ## info  
 * About 45 minutes  
 * 4 servings as part of a meal with other dishes  
 
 ## ingredients
-* 2 medium tomatoes (or 1 small can, fire-roasted best)  
-* 6 cloves garlic, peeled  
-* 1" piece of ginger, roughly chopped  
-* 1" piece cinnamon  
-* 2 cloves  
-* 2 green cardamom pods  
-* 1 tbsp oil  
-* 1 tsp cumin seeds  
-* 1 medium red onion, chopped  
-* 3–4 whole chilies, sliced lenghtwise  
-* 1 tsp coriander powder  
-* 1/2 tsp turmeric powder  
-* 1/2 tsp red chili powder  
-* 3/4 tsp salt  
-* 1.5 cups water  
-* 2 medium potatoes, cut into 1/2" pieces  
-* 2–3 cup green peas (frozen ok)  
-* 1.5 tsp garam masala  
-* 1 tsp crushed fenugreek leaves (kasuri methi)  
-* Cilantro (to garnish)  
+* bread
 
 ## steps  
 1. In a blender, puree tomatoes, garlic, and ginger  
