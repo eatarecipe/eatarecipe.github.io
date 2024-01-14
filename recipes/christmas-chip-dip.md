@@ -4,7 +4,7 @@
 * 8 oz cream cheese
 * 12 oz cottage cheese
 * 12 oz sour cream
-* up to 12 oz miracle whip
+* up to 12 oz Miracle Whip
 * canned tiny shrimp, crab, or both
 * catsup
 * tabasco sauce
