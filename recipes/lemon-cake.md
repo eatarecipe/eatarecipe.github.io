@@ -13,7 +13,8 @@ Lemon Frosting:
 * 1 c. salted butter
 * 1 c. granulated sugar (not powdered)
 * 2 tsp lemon extract
-* 2 TBS lemon zest
+* 1 1/2-2 TBS lemon zest
+* optional: yellow food coloring
 
 ## steps
 Lemon Cake:
@@ -35,6 +36,7 @@ Lemon Frosting:
 3. In an electric stand mixer, beat the butter and the sugar for a minute or two until well combined and fluffy. You'll want to use the whisk attachment instead of a flat paddle. While beating, add in the thickened milk miture and the lemon extract. Beat to combine and then scrape down the sides. Mixture will separate and look messy; keep beating!
 4. Continue beating until mixture comes together and is light and fluffy, about 7-8 minutes. Take a sample of frosting between your fingers; frosting is done when light and fluffy and sugar granules are dissolved.
 5. Mix in lemon zest.
+6. Optional: add yellow food coloring one drop at a time until frosting reaches desired color.
 
 ## notes  
 * this cake is so light and spongey
