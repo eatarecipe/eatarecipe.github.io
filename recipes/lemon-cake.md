@@ -2,7 +2,7 @@
   
 ## ingredients
 Lemon Cake:
-* 1 (18.25 oz) package lemon cake mix
+* 1 (15.25 oz) package lemon cake mix
 * 1 (3.4 oz) package instant lemon pudding mix
 * 1 3/4 c. water
 * 3 egg whites
