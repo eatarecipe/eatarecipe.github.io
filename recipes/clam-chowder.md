@@ -20,10 +20,9 @@
 2. Cook until thick.
 
 ## notes  
-* Marcia's recipe
+* 
 
 ## based on  
-* Brattens Clam Chowder (Lucy)  
 * https://www.food.com/recipe/brattens-famous-clam-chowder-115258
 * https://www.food.com/recipe/brattons-clam-chowder-205163
 * https://www.justapinch.com/recipes/soup/chowder-soup/brattens-famous-clam-chowder.html
