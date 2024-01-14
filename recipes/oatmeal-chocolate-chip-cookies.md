@@ -1,7 +1,8 @@
 # Oatmeal Chocolate Chip Cookies
 
-## Yeild
-* about 5 dozen
+## info  
+* 
+* about 5 dozen 
 
 ## ingredients
 * 2¼ cups flour
