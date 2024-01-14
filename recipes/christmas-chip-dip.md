@@ -4,10 +4,10 @@
 *   
 
 ## ingredients
-* cream cheese
-* cottage cheese
-* sour cream
-* miracle whip (not mayo)
+* 8 oz cream cheese
+* 12 oz cottage cheese
+* 12 oz sour cream
+* 12 oz miracle whip (not mayo)
 * catsup
 * canned tiny shrimp, crab, or both
 * tobasco sauce
