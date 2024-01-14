@@ -15,7 +15,8 @@
 6. Pour mixture over the top of the graham cracker crumbs. Sprinkle some crumbs on top.
 7. Freeze for about six hours until it is set.
 
-## optional baked graham cracker crust
+## notes
+**optional baked graham cracker crust**
 * 1 1/2 c. finely crushed graham crackers (5 1/8 oz - about 20 squares)
 * 1/3 c. stick margarine or butter, melted
 * 3 TBS sugar
