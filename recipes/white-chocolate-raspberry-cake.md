@@ -48,13 +48,13 @@ White Chocolate Frosting:
 5. Add vanilla and powdered sugar and blend on low for 30 more seconds.
 6. Increase mixer speed to medium and beat 1 minute until fluffy.
 7. Keep refrigerated.
-   Makes 3 cups frosting, enough to frost a 2- to 3-layer cake.
+Makes 3 cups frosting, enough to frost a 2- to 3-layer cake.
 
 White Chocolate Cream Topping:
+* Makes 4 cups
 1. Place pudding mix in medium bowl; gradually stir in milk.
 2. Beat with wire whisk for 2 minutes.
 3. Fold in whipped topping.
-   Makes 4 cups
 
 Assembling the Cake:
 1. Trim cake if needed so layers fit nicely together. Place bottom layer on cake plate.
