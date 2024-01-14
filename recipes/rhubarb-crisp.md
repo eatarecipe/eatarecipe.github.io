@@ -24,4 +24,6 @@ Topping
 2. Mix in oatmeal and sugar.
 3. Cut in butter very finely, or rub in with fingertips.
 
-Spread rhubarb sauce in pan, then cover with oatmeal mixture. Bake at 350° for 25-30 minutes. Cut in squares and serve warm or cold, with cream or whipped cream, or with custard sauce or vanilla ice cream.
+1. Spread rhubarb sauce in pan, then cover with oatmeal mixture.
+2.  Bake at 350° for 25-30 minutes.
+3.  Cut in squares and serve warm or cold, with cream or whipped cream, or with custard sauce or vanilla ice cream.
