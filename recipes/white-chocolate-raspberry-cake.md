@@ -41,6 +41,7 @@ White Chocolate Cake:
 6. While cake is baking and cooling, prepare frosting, cream topping, and garnishes.
 
 White Chocolate Frosting:
+* Makes 3 cups frosting, enough to frost a 2- to 3-layer cake.
 1. In a small pan over low heat, melt chopped chocolate, stirring constantly. (Or melt in microwave)
 2. Remove from heat and let cool.
 3. In a large bowl, combine cream cheese and butter; beat for 30 seconds.
@@ -48,7 +49,6 @@ White Chocolate Frosting:
 5. Add vanilla and powdered sugar and blend on low for 30 more seconds.
 6. Increase mixer speed to medium and beat 1 minute until fluffy.
 7. Keep refrigerated.
-* Makes 3 cups frosting, enough to frost a 2- to 3-layer cake.
 
 White Chocolate Cream Topping:
 * Makes 4 cups
