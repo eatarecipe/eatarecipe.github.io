@@ -17,7 +17,7 @@
 * Top with chocolate curls and/or a couple of pinches of vanilla bean salt.
 * Sometimes I don't bother with the hot cream and use whole milk instead.
 
-## 1.5 recipe
+**1.5 recipe**
 * 3/4 c. butter
 * 1 lb 5 oz powdered sugar
 * 1/3 + 2 1/2 TBS cocoa (1 3/8oz)
