@@ -26,7 +26,7 @@ Lemon Cake:
 6. Bake at 350° for 20-25 minutes, or until a toothpick inserted into the center of the cake comes out clean.
 7. Allow to cool completely.
 
-Cupcakes:
+For Cupcakes:
 1. Fill cupcakes 3/4 full, rather than 2/3 full
 2. Bake ~20 minutes; makes 24 cupcakes
 
