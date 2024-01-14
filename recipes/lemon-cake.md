@@ -19,7 +19,7 @@ Lemon Frosting:
 ## steps
 Lemon Cake:
 1. Preheat oven to 350°. Grease and flour two 8-9 inch round pans.
-2. Mix together cake mix and pudding mix.
+2. In a large bowl, mix together cake mix and pudding mix.
 3. Pour in water and egg whites; beat on low speed for one minute.
 4. Increase speed to high and beat for four minutes.
 5. Pour batter into prepared pans. (batter weighs ~2 lb, 3 oz)
