@@ -11,7 +11,7 @@
 * ¾ cup granulated sugar
 * ¾ cup brown sugar, firmly packed
 * 1 teaspoon vanilla extract
-* 1 whole egghttps://github.com/eatarecipe/eatarecipe.github.io/blob/production/recipes/oatmeal-chocolate-chip-cookies.md
+* 1 whole egg
 * 2 egg yolks
 * ⅓ cup rolled oats
 * 12 ounces (2 cups) semisweet chocolate chips
