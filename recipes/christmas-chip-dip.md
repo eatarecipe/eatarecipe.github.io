@@ -1,8 +1,5 @@
 # Christmas Chip Dip
 
-## info  
-*   
-
 ## ingredients
 * 8 oz cream cheese
 * 12 oz cottage cheese
@@ -13,7 +10,6 @@
 * tobasco sauce
 
 * Ruffles wavy chips
-
 
 ## steps  
 1. equal parts cottage cheese, sour cream, and miracle whip
