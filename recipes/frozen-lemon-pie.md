@@ -20,8 +20,6 @@
 * 1 1/2 c. finely crushed graham crackers (5 1/8 oz - about 20 squares)
 * 1/3 c. stick margarine or butter, melted
 * 3 TBS sugar
-
-## steps
 1. Heat oven to 350°
 2. Mix crumbs, butter, and sugar. Reserve 3 tablespoons mixture for topping, if desired. Press remaining mixture firmly against bottom and side of 9x11 baking dish.
 3. Bake about 10 minutes or until light brown; cool.
