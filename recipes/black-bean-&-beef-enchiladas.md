@@ -1,8 +1,7 @@
 # Black Bean & Beef Enchiladas  
 
 ## info  
-* 20 minutes prep time
-* 40 minutes bake time
+* 20 minutes prep time, 40 minutes bake time
 * 8 servings  
 
 ## ingredients
