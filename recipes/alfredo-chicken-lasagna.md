@@ -1,4 +1,4 @@
-# Alfredo Chicken Lasagne
+# Alfredo Chicken Lasagna
 
 ## info
 * prep: 25 min; bake: 40 min + standing
