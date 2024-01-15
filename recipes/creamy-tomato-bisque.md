@@ -28,4 +28,5 @@
 * Make ahead: Prepare the soup completely and refrigerate. Reheat over medium-low heat, adding milk or water as needed to make the soup the desired consistency.
 
 ## based on  
-* Ina Garten's recipe from her book: Modern Comfort Food. Her recipe calls for parsley instead of basil, and asks for San Marzano crushed tomatoes, but I used a no-name brand which tasted fine to me.
+* Ina Garten's recipe from her book: Modern Comfort Food. Her recipe calls for parsley instead of basil as a garnish, but fresh parsley from the store is usually gross. It also suggests San Marzano crushed tomatoes, but I used a no-name brand which tasted fine to me.
+* https://www.today.com/recipes/ina-garten-s-creamy-tomato-bisque-recipe-t193306
