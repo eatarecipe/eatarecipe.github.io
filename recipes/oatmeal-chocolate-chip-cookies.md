@@ -22,7 +22,7 @@
 3. Add egg and egg yolks; beat well.
 4. Gradually add all but about ½ cup dry ingredients. Mix rolled oats with remaining flour, and stir into batter. Stir in chocolate chips.
 5. Drop by heaping teaspoonfuls onto ungreased baking sheets. Bake at 375° for 10 to 12 minutes.
-
+ <br> 
 * Yields about 5 dozen.
 
 ## based on
