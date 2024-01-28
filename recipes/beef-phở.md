@@ -12,7 +12,7 @@
 * 3 TBS Quoc Viet Foods' Beef flavored Phở Soup Base
 * spice packet that comes with the soup base (see notes)
 * 1 lb. thinly sliced beef (see notes)
-* fresh rice stick noodles (found in the refrigerated section)
+* fresh rice stick noodles (found in the refrigerated section of your local Asian market)
 
 Garnishes
 * mung bean sprouts
