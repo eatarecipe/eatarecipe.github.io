@@ -27,9 +27,9 @@ Garnishes
 2. Add 6-8 cups water and use a tea infuser and a coffee filter to steep about ½ tablespoon of the spice packet (see notes); bring to a boil.
 3. While waiting for water to boil, prepare noodles, meat, and green onions.
 4. At boiling, add 3 TBS soup base (or to taste), and stir until contents are dissolved.
-5. Add the meat to the boiling water, bring back to a boil; cook just long enough for the meat to lose its pink color. It will be very tough if cooked too long.
-6. Remove the infuser and spices from the pot; discard spices.
-7. Add the rice noodles to the boiling pot. Fresh rice stick noodles only take about 90 seconds to cook in boiling water.
+5. Add the meat to the boiling water; move to the next step before the meat loses its pink color. It will be very tough if cooked too long.
+6. Either cook the rice noodles separately or add them to the boiling pot. Fresh rice stick noodles only take about 90 seconds to cook in boiling water.
+7. Remove the infuser and spices from the pot; discard spices.
 8. Remove from heat and serve over mung bean sprouts, topping with desired garnishes.
 
 ## notes  
