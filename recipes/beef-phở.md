@@ -29,7 +29,7 @@ Garnishes
 4. At boiling, add 3 TBS soup base (or to taste), and stir until contents are dissolved.
 5. Place rice noodles in a mesh colander that can be lowered into the boiling broth. Lower the noodles in the broth for about 60-90 seconds; stir noodles in the colander a couple of times so they cook evenly. Remove noodles and pour into a serving bowl; set aside.
 6. Add the meat to the broth. Remove pot from the heat before the meat completely loses its pink color. It will be very tough if cooked too long, plus it will continue to cook even after removed from the heat.
-7. Serve soup over the noodles, topping with desired garnishes.
+7. Serve soup over the noodles, topped with desired garnishes.
 
 ## notes  
 * The recipe on my soup base container makes a ginormous batch; using 2 gallons of water. The soup base comes with a couple of spice filter bags. Because I only want to feed 6-8 people, I cut open the filter bags, divide the spices inside into smaller portions, and wrap each portion in its own coffee filter. I place one of one portion of the coffee filter/spices in a tea infuser thing-a-ding, and then submerge the infuser into the water while it's coming to a boil.
