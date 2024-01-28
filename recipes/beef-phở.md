@@ -28,7 +28,7 @@ Garnishes
 3. While waiting for water to boil, prepare noodles, meat, and garnishes.
 4. At boiling, add 3 TBS soup base (or to taste), and stir until contents are dissolved.
 5. Place rice noodles in a mesh colander that can be lowered into the boiling broth. Lower the noodles in the broth for about 60-90 seconds; stir noodles in the colander a couple of times so they cook evenly. Remove noodles and pour into a serving bowl; set aside.
-6. Add the meat to the broth. Remove pot from the heat before the meat loses its pink color. It will be very tough if cooked too long, plus it will continue to cook even after removed from the heat.
+6. Add the meat to the broth. Remove pot from the heat before the meat completely loses its pink color. It will be very tough if cooked too long, plus it will continue to cook even after removed from the heat.
 7. Serve soup over the noodles, topping with desired garnishes.
 
 ## notes  
